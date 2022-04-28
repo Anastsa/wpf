@@ -25,6 +25,3 @@ _______
 1. ddddddddd
     2. ffffffffffff
         3. jjjjjjjjjjjjj
-____________________
-1. yubhujbhjb
-2. kmmkmk
