@@ -29,6 +29,8 @@ _______
         2. tjjtutyfhygyt
  💩 ⚰️ 🍻
 ![Alt-текст](https://avatars1.githubusercontent.com/u/5384215?v=3&s=460 "Орк")
+__________________________
+![alt-текст](https://yandex.ru/images/search?rpt=simage&noreask=1&source=qa&text=Морган+Фримен&stype=image&lr=240&family=yes&parent-reqid=1651129864033978-12028718102182814396-sas2-0047-sas-l7-balancer-8080-BAL-8786)
 ________________________________________________________
 | LEFT | CENTER | RIGHT |
 |----------------|:---------:|----------------:|
